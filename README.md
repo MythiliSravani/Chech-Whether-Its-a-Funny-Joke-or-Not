@@ -1,0 +1,1 @@
+# Chech-Whether-Its-a-Funny-Joke-or-Not
